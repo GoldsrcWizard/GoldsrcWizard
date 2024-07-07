@@ -1,0 +1,1 @@
+Sup. I've been making all kinds of shit repos and code snippets, but i've decided to make it a public thing just now. Why the sudden change of heart? I've forgot that in todays day and age having an actual github account and being able to show off ur stupid work is an extremely useful skill.
